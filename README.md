@@ -30,8 +30,8 @@ Whether it’s frontend, backend, or databases — I love connecting the dots to
 ## 📫 Let's Connect
 
 Feel free to reach out if you'd like to collaborate or just say hi!  
-📧 your.email@example.com  
-🔗 [LinkedIn](#)
+📧 TT0527123469@gmail.com
+
 
 ---
 
